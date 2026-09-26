@@ -1,4 +1,4 @@
-# Hostinger Coupon Code 83% Off (Sep 2026) Get $375 Discount
+# Hostinger Coupon Code 83% Off (2026) Get $375 Discount
 
 [![Hostinger Coupon Code for First-Time Users](https://hostingfirst.discount/wp-content/uploads/2026/07/Hostinger-Coupon-Code-for-First-Time-Users.png)](https://hostingfirst.discount/)
 
