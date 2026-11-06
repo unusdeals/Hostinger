@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hostinger Coupon Code & Black Friday Deals 83% Off (Nov 2026)
+# Hostinger Coupon Code & Black Friday Deals 84% Off (Nov 2026)
 
 [![Get Hostinger Coupon Code for First-Time Users](https://hostingfirst.discount/wp-content/uploads/2026/10/Hostinger-Black-Friday-Deals-scaled.png)](https://hostingfirst.discount/go/offer/)
 
@@ -9,10 +9,9 @@
 
 </div>
 
-Looking for a working [Hostinger 83% off coupon code](https://hostingfirst.discount/go/offer/) in 2026?
+Looking for a working [Hostinger 84% off coupon code](https://hostingfirst.discount/go/offer/) in 2026?
 
-You are in exactly the right place. Hostinger currently offers an extra discount on top of its already heavily discounted hosting plans for new users, and it is applied automatically when you use the link below.
-
+You're in the right place! New Hostinger customers can unlock an **extra discount on top of the existing hosting sale**. Simply use the link below, and the additional savings will be applied automatically at checkout. No coupon code required.
 <div align="center">
 
 <a href="https://hostingfirst.discount/go/offer/" target="_blank" rel="noopener noreferrer">
@@ -34,6 +33,16 @@ You are in exactly the right place. Hostinger currently offers an extra discount
 
 
 <div align="center">
+
+</div>
+
+## 84% Off Hostinger Premium Hosting Discount
+
+Get [**84% off Hostinger Premium hosting**](https://hostingfirst.discount/) for just **₹111.20/month** instead of ₹679/month with the referral discount applied. Ideal for creators, bloggers, and small businesses, this plan helps you run your websites smoothly. Pay **₹5,337.60 upfront for 48 months**, then renews at ₹449/month for the same term. Cancel anytime.
+
+<div align="center">
+
+<a href="https://hostingfirst.discount/go/offer/"><img src="https://hostingfirst.discount/wp-content/uploads/2026/07/Discount-button.png" alt="Discount Button" width="620"></a>
 
 </div>
 
