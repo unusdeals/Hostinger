@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hostinger Coupon Code & Black Friday Deals 83% Discount (Nov 2026)
+# Hostinger Coupon Code & Black Friday Deals 86% Discount (Nov 2026)
 
 [![Get Hostinger Coupon Code for First-Time Users](https://hostingfirst.discount/wp-content/uploads/2026/10/Hostinger-Black-Friday-Deals-scaled.png)](https://hostingfirst.discount/go/offer/)
 
@@ -33,6 +33,27 @@ You're in the right place! New Hostinger customers can unlock an **extra discoun
 
 
 <div align="center">
+
+</div>
+
+## Hostinger Single Hosting: Save 86% on Your First Website
+
+Launch your first website with Hostinger Single Hosting at **86% off**. The price drops from ₹399 to just **₹55.20/month** with the referral discount applied.
+
+- **Regular price:** ₹399/month
+- **Discounted price:** ₹55.20/month
+- **Billing term:** 48 months
+- **Total today:** ₹2,649.60
+- **Renewal price:** ₹289/month for the same term
+- **Cancellation:** Cancel anytime
+
+**Sale Season Bonus:** Get 500 AI credits instead of the usual 250, giving you 2x more credits.
+
+Hostinger Single is suitable for beginners who want to launch their first website or run a simple online project without spending much on hosting.
+
+<div align="center">
+
+<a href="https://hostingfirst.discount/go/offer/"><img src="https://hostingfirst.discount/wp-content/uploads/2026/07/Discount-button.png" alt="Discount Button" width="620"></a>
 
 </div>
 
@@ -71,6 +92,40 @@ Get **$270 off Hostinger Business Hosting** and upgrade your website's performan
 ## Hostinger Cloud Startup Discount (71% Off)
 
 Save **up to 71% on Hostinger Cloud Startup hosting** with this [**Hostinger Cloud Startup deal**](https://hostingfirst.discount/go/offer/). Designed for high-traffic WordPress sites and WooCommerce stores, this plan offers more resources for demanding websites that need reliable performance as they grow. While the percentage discount is lower than on some entry-level plans, the promotional price can still deliver substantial savings compared with paying the regular rate.
+
+<div align="center">
+
+<a href="https://hostingfirst.discount/go/offer/"><img src="https://hostingfirst.discount/wp-content/uploads/2026/07/Discount-button.png" alt="Discount Button" width="620"></a>
+
+</div>
+
+## Hostinger India: Save 80% on Cloud Hosting + Free Dedicated IP, Domain & SSL
+
+**Popular Offer**
+
+**Expires: December 31, 2028**
+
+Save up to 80% on eligible Hostinger Cloud Hosting plans in India. Get extra benefits, including a free dedicated IP address, a free domain, and free SSL certificates. Grab this offer before it expires!
+
+<div align="center">
+
+<a href="https://hostingfirst.discount/go/offer/"><img src="https://hostingfirst.discount/wp-content/uploads/2026/07/Discount-button.png" alt="Discount Button" width="620"></a>
+
+</div>
+
+## Hostinger India: Save Up to 75% on WordPress Hosting Plans
+
+Get up to 75% off eligible Hostinger WordPress Hosting plans in India. Take advantage of this limited-time deal to launch your WordPress website at a lower price while enjoying reliable hosting and WordPress-focused features.
+
+<div align="center">
+
+<a href="https://hostingfirst.discount/go/offer/"><img src="https://hostingfirst.discount/wp-content/uploads/2026/07/Discount-button.png" alt="Discount Button" width="620"></a>
+
+</div>
+
+## Hostinger OpenClaw Hosting Coupon: Save Up to 73% + Extra 10% Off
+
+Get up to 73% off Hostinger OpenClaw Hosting, plus an extra 10% discount with coupon code. You also get a 30-day money-back guarantee. Host your own AI agent with Hostinger and keep it running 24/7. Deploy OpenClaw in seconds to get a private, always-on AI assistant that can handle routine tasks automatically, even when you're offline or asleep.
 
 <div align="center">
 
