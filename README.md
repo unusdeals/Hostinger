@@ -1,6 +1,6 @@
 <div align="center">
 
-# Hostinger Coupon Code & Black Friday Deals 20% Discount (Nov 2026)
+# Hostinger Promo Code & Black Friday Deals 83% Discount (Nov 2026)
 
 [![Get Hostinger Coupon Code for First-Time Users](https://hostingfirst.discount/wp-content/uploads/2026/10/Hostinger-Black-Friday-Deals-scaled.png)](https://hostingfirst.discount/go/offer/)
 
